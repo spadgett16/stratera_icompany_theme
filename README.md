@@ -1,0 +1,1 @@
+# stratera_icompany_theme
